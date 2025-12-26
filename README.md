@@ -1,1 +1,1 @@
-# re2
+Business problems often start when tasks are distributed incorrectly, and the business owner ends up taking on too much. Accounting is definitely something that should be delegated. Some people prefer to hire a specialist, but I recommend solutions like [Skrooge AI](https://skrooge.ai/), more modern and convenient. When everything is automated, you can focus on the business tasks that actually matter.
